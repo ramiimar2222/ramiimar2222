@@ -1,4 +1,4 @@
-## 👋 Hi, I'm Rida
+## 👋 Hi there, I'm Rida
 
 🎓 Electronics and communication engineering student 
 
